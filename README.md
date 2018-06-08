@@ -1,2 +1,0 @@
-# Karthikeya.github.io
-Resume.
