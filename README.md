@@ -1,2 +1,2 @@
-# KSSKarthikeya.github.io
+# svstejaswi.github.io
 Resume
